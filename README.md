@@ -1,6 +1,6 @@
-### *This is a Xmas &amp; NewYear story for Harry Potter FanFiction*
-
 # Freshwater Plimpy and Anklers Headband 淡水彩球鱼和鹿角发箍
+
+### *This is a Xmas &amp; NewYear story for Harry Potter FanFiction*
 
 **阅前须知：**
 
@@ -23,3 +23,4 @@
 
 ### **[淡水彩球鱼和鹿角发箍 Part1](Part1.md)**
 
+### **[淡水彩球鱼和鹿角发箍 Part2](Part2.md)**
