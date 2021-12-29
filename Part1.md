@@ -1,5 +1,5 @@
 
-## **Freshwater Plimpy and Antlers Headband 淡水彩球鱼和鹿角发箍 1**
+# Freshwater Plimpy and Antlers Headband 淡水彩球鱼和鹿角发箍 1
 
 卢娜很喜欢淡水彩球鱼。这是一种长着两条腿的奇怪鱼类，生活在属于巫师管辖范围的溪流中，是她最先介绍给梅雷迪思的。于是梅雷迪思也喜欢上了淡水彩球鱼。
 
